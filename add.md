@@ -1,0 +1,1 @@
+agregar al area de preparacion
